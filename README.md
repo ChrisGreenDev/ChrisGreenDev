@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **w0795059@myscc.ca**
 
-- ⚡ Fun fact **I'm co owner of Aperture Interactive, a development business.**
+- ⚡ Fun fact **I'm a co owner of Aperture Interactive, a development business.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
